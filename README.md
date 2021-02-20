@@ -1,0 +1,1 @@
+# CurrencyShare-TechnicalSupport
